@@ -1,3 +1,7 @@
+help us buy this domain!!
+https://www.namecheap.com/domains/registration/results/?domain=aquacorp.co
+:D
+
 🌊 AquaCorp README
 1. Introduction
 Welcome to AquaCorp! We are a mission-driven company dedicated to revolutionizing water systems through cutting-edge technology, sustainable practices, and global collaboration.
